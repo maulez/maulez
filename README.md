@@ -1,0 +1,7 @@
+- haiii, selamat ulang tahun
+- semogaaa kamu panjang umur dan bahagia teruss yaaa
+- jangan kebanyakan makan pedesss
+- semoga kita bisa ngonser frf bareng ya
+- aku seneng bisa sama kamu
+- di hari spesial kamu, kamu gaboleh sedih.
+- i love you
